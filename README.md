@@ -1,2 +1,0 @@
-# finaltrabajo.github.io
-demostración
